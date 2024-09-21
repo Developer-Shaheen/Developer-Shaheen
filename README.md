@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Shn
+- 👋 Hi, I’m Shn
 - 👀 I’m interested in New Projects
 - 🌱 I’m ready to give you all supports
 - 💞️ I’m looking to collaborate with all of you
